@@ -1,2 +1,2 @@
--A caso se cree dios ese hombre- /r
+-A caso se cree dios ese hombre-
 -no, Dios tendria misericordia-
